@@ -1,0 +1,1 @@
+A course designed to: "Understand how to manage technical teams effectively. Learn to overcome unique challenges, foster collaboration, and lead geographically dispersed teams to success.". Provided by Codecademy (https://www.codecademy.com/learn/ext-courses/strategies-for-managing-technical-teams)
