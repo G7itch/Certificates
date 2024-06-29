@@ -1,0 +1,1 @@
+Level 2 Food hygiene and safety for catering course, assured by ROSPA and certified by the CPD Certification centre, provided by Food Safety UK c/o ONE Training Services Ltd. This certificate does not expire but is recommended to be renewed every 3 years.
