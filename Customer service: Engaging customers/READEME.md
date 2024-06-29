@@ -1,0 +1,1 @@
+A structured course that was designed to provide a gateway to customer service roles, through the form of conflict resolution, understanding customer needs and practice flexibility in problem solving. Provided by Codecademy, in partnership with nuebridge (https://www.codecademy.com/ext-courses/customer-service-engaging-with-customers)
