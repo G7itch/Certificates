@@ -1,0 +1,1 @@
+An online course provided by Codecademy that aims to teach the soft-skills needed to effectively communicate with all areas of a business whilst acting in a techical setting. https://www.codecademy.com/learn/ext-courses/effective-stakeholder-communications-for-technology-professionals
