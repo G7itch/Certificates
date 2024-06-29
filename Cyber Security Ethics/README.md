@@ -1,0 +1,1 @@
+A free online course addressing ethical issues and arguments surrounding cybersecurity as well as the professional stance that should be taken by an individual or business - https://mooc.canvas-project.eu/
