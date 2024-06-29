@@ -1,0 +1,1 @@
+A short course developed by codecademy to provide additional training on making professional and successful presentations. I explored this course to compliment and further the work I did on my Extended project qualification. https://www.codecademy.com/learn/ext-courses/building-and-delivering-a-great-virtual-presentation
